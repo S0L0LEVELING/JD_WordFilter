@@ -1,3 +1,3 @@
 # JD_WordFilter
 
-https://discord.gg/qyPdHzDKmb
+https://discord.gg/prefech
